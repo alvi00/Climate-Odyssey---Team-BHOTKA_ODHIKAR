@@ -8,6 +8,8 @@
 In *Climate Odyssey*, your actions leave a lasting impact. Even after completing missions, the environmental changes you make live on in the game, symbolizing that heroes of the environment never stop fighting for the planet. Your legacy as a protector of Earth continues to inspire global efforts, as the battle for a cleaner world never truly ends.
 
 ## How to Download:  
+ GO TO THIS LINK - https://alvi00.itch.io/climate-odyssey-team-bhotka-odhikar
+How to Download and Play PC Version
 
 1.Download zip file .
 
